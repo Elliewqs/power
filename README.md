@@ -12,4 +12,4 @@ elliemoura10@gmail.com
 
 @elliqki
 
-[http://imgur.com/gallery/TAMKjum!]
+![]http://imgur.com/gallery/TAMKjum
